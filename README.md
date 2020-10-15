@@ -1,2 +1,5 @@
-I'm about to just say fuck the world an everyone in it cuz ain't nobody really care about anyone only themselves.# HELLO-WORLD
+# HELLO-WORLD
+
 Without you
+
+Fuck the world and everyone in it
